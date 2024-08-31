@@ -64,7 +64,7 @@
 
 ![genderqueer](https://64.media.tumblr.com/291a05c62da626752f244a4a623659ce/c6faef8646b3e8fd-ee/s250x400/03b3a951307155c8d159407cbb2f674f89d8e506.gifv)
 ![unlabeled](https://64.media.tumblr.com/76a27139f0b7f30c50db50340c09dfa5/54be8aea490f3b1a-78/s250x400/35eb0818489634f1c8d9a7939571ad6f61a9f927.gifv)
-![aroace](https://blinkie-net.neocities.org/blinkies/Pride/aroacepride.gif)
+![aroace](https://blinkie-net.neocities.org/blinkies/Pride/aroacepride.gif) ( spec )
 
 ![protect trans kids](https://64.media.tumblr.com/dff3253787c7160bb0fcf10e0792e984/d19bdf2725dc9464-71/s1280x1920/0ba7e402c8a22f5abe36864eb9dd00f0dc5ef02c.gifv)
 
