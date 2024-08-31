@@ -5,6 +5,7 @@
 ![i love the dark](https://gifcity.carrd.co/assets/images/gallery14/8a11528e.gif?v=dc8076d6)
 ![this user is from hell](https://files.catbox.moe/2q1otc.gif)
 ![red rules](https://gifcity.carrd.co/assets/images/gallery14/aeef5624.gif?v=dc8076d6)
+![dont kill people](https://camo.githubusercontent.com/caaf01ab5458299c3038dfbf1a3d28f8b374cef5d273e2a0fef31557e267e2e5/68747470733a2f2f676966636974792e63617272642e636f2f6173736574732f696d616765732f67616c6c65727931342f31303838353961642e6769663f763d6463383037366436)
 ![acdb](https://gifcity.carrd.co/assets/images/gallery14/d8121f5e.gif?v=dc8076d6)
 ![evil adhd](https://i.imgur.com/yePAUt1.gif)
 ![cats cats cats](https://files.catbox.moe/dlhm6n.gif)
