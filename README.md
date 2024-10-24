@@ -62,17 +62,7 @@
 ![WHAT!?](https://plasticdino.neocities.org/blinkie/WhatBlinkieBox.gif)
 ![UGNHH](https://supplies.ju.mp/assets/images/gallery07/bd3b837f_original.gif?v=9163b103)
 
-![genderqueer](https://64.media.tumblr.com/291a05c62da626752f244a4a623659ce/c6faef8646b3e8fd-ee/s250x400/03b3a951307155c8d159407cbb2f674f89d8e506.gifv)
-![unlabeled](https://64.media.tumblr.com/76a27139f0b7f30c50db50340c09dfa5/54be8aea490f3b1a-78/s250x400/35eb0818489634f1c8d9a7939571ad6f61a9f927.gifv)
-![aroace](https://blinkie-net.neocities.org/blinkies/Pride/aroacepride.gif) ( spec )
-
 ![protect trans kids](https://64.media.tumblr.com/dff3253787c7160bb0fcf10e0792e984/d19bdf2725dc9464-71/s1280x1920/0ba7e402c8a22f5abe36864eb9dd00f0dc5ef02c.gifv)
-
-![catboydoggirl](https://64.media.tumblr.com/bf8a1fc5fedefd7e183d9d4ed1cc40f2/54da408cf1886a95-52/s400x600/f66f0a675635093bf57538a704f3ad591d6121a0.gifv)
-![t4t](https://blinkie-net.neocities.org/blinkies/Blinkies2/t4t.gif)
-
-![transmasc](https://64.media.tumblr.com/851df402a75e23de39be25664f452f00/a6614e5a17583886-ff/s100x200/75b035f1ab4a341088a1ce436aba13c049b97272.pnj)
-![i love my trans gf](https://files.catbox.moe/rygutg.png)
 
 ![captilism kills](https://files.catbox.moe/7vq61h.gif)
 ![legalize marijuana](https://files.catbox.moe/dd1m1q.gif)
