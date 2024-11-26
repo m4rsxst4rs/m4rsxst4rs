@@ -62,6 +62,8 @@
 ![WHAT!?](https://plasticdino.neocities.org/blinkie/WhatBlinkieBox.gif)
 ![UGNHH](https://supplies.ju.mp/assets/images/gallery07/bd3b837f_original.gif?v=9163b103)
 
+![starsnakekittyboy 4 shellpuppydeergirl](https://media.discordapp.net/attachments/1279219608510795817/1311090512928702545/1e143aa9-9b12-459a-b976-a6b972260bcf.gif?ex=674797b1&is=67464631&hm=859eaf5933e18e5f9f541f203c8b3596a46707f561d94f0ef88f47944458f03d&=)
+
 ![protect trans kids](https://64.media.tumblr.com/dff3253787c7160bb0fcf10e0792e984/d19bdf2725dc9464-71/s1280x1920/0ba7e402c8a22f5abe36864eb9dd00f0dc5ef02c.gifv)
 
 ![captilism kills](https://files.catbox.moe/7vq61h.gif)
